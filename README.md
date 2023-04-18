@@ -10,3 +10,4 @@
 ## 顺着网线能找到我🕸
 - base🌏：`深圳` 中建第12138工程队进门左手边靠墙中铺
 - email📩：byq1213@qq.com
+> ooooo"短链": https://ooooooooooooooooooooooo.ooo/ooooοооoοᴏοoοᴏοoοᴏooοᴏoᴏoᴏооoоᴏᴏoоᴏᴏοоοᴏοооοοᴏοoοооoοᴏοοοоoоoоᴏоοоoᴏοоᴏᴏοоᴏοoоᴏᴏοоoоοᴏоοοᴏoοoᴏoοoᴏoоoᴏoοoᴏoᴏ
